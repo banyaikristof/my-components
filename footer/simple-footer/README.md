@@ -1,1 +1,1 @@
-ez egy megjegyzés
+ez egy megjegyzes
